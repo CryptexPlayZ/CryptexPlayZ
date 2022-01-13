@@ -1,4 +1,4 @@
-- 🌹 Hey, Its @CryotexPlayZ
+- 🌹 Hey, Its @CryptexPlayZ
 - 🍷 Bot Dev + Graphic Deshiner
 - 🍺 Playing with Python
 - 📄 Reach me on my mail - cryptexplayz@gmail.com | Or drop a dm on my discord -  !    ™CryptexPlayZ ᴸᴳᴺ†ˢᵖʸ#0001
